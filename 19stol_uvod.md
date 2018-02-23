@@ -1,0 +1,43 @@
+#19. století
+- **pokusy o modernizaci společnosti**
+	- snaha **reformovat** / svrhnout monarchii (liberalismus) **X** snaha o **konzervatismus**
+	- revoluční bouře
+- **změny ve společnosti**
+	- **změna v industriálně agrární společnost**
+		- přechodné období mezi agrarní a industriální 
+	- **sociální sféra**
+		- pracovní síla z venkova se stěhuje do měst
+		- lepší životní podmínky -> více obyvatel
+		- **urbanizace**
+			- rozšiřování měst
+			- města ztrácí hradby, středověký charakter, úzké uličky
+			- továrny
+		- **počátky dělnického hnutí**
+			- lepší prac. podmínky
+		- **rozvoj vědy a techniky**
+			- elektřina, osvětlení
+		- **ideologie**
+			- nacionalismus, socialismus, liberalismus, demokracie
+	- **posílení národních myšlenek**
+		- Francie (Napoleón), Velká Britínie, USA
+		- bojování o nezávislost - Česko, Uhry, Polsko
+	- **moderní kolonialismus**
+		- v poslední třetině 19. stol. -> expanze
+		- pronikání netradičních koloniálních zemí (Německo, Itálie) do Afriky
+	- **židovská otázka**
+		- antisemitismus
+		- sionismus (Herzl) - historik
+			- chce navrátit židům půdu v Palestině
+	- **soupeření velmocí**
+		- o hegemonii
+		- vojenské bloky
+			- trojspolek
+			- dohoda
+	- **nové umělecké směry**
+		- viz. dokument - Umělecké směry
+		- stol. 18. a 1/2 19. stol.
+		- doznívá Baroko
+		- **rokoko**
+		- **klasicismus**
+		- **Empír**
+		- **Romantismus**

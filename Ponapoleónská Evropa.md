@@ -1,0 +1,55 @@
+#Ponapoleónská Evropa
+##Vídeňský kongres
+- století restaurace (obnova) ke stálým pořádkům
+- 1814 - 1815
+- mírový kongres
+- účast evropských mocností
+- pořadatel - **Rakousko**
+- prezident kongresu = K. L. Von **Metternich**
+	- konzervativní politik
+	- věřil v absolutismus
+	- žádné změny
+- **4 vítězné mocnosti**
+	- **Rusko**
+		- Alexandr I.
+	- **Prusko**
+		- Fridrich III.
+	- **Rakousko**
+		- František I.
+	- **Velká Británie**
+- Francie (Talleyrand - diplomat, státník - úspěšný ministr ve službách restaurace Bourbonů)
+	- také měla moc
+- **cíle**
+	- ukončit války s Francií
+	- snaha srovnat evropské poměry po Napoleónských válkách
+	- vyřešit územní uspořádání Evropy
+	- snaha obnovit pol. poměry
+	- vytvořit evropský bezpečnostní systém
+		- měl zabránit snahám o změny
+	- vrátit Evropu do stavu před Nap. válkami a Velkou francouzskou revolucí
+- **přijaty 4 politické principy**
+	- **princip legitimity**
+		- návrat bývalých vládnoucích dynastií k moci
+		- restaurace
+	- **princip rovnováhy sil**
+		- žádný stát v Evropě neměl získat hegemonii
+		- nejvíc omezena Francie
+	- **princip územního vyrovnání**
+		- návrat evropských hranic do období před 1792 -> Rusko a Habsburská monarchie získaly nejvíce území
+		- **personální unie** (= kongresovka)
+			- mezi Ruskem a Polskem
+		- **získali:**
+			 - Rusko - *část Finska*
+			 - Habs. monarchie - *sev. Itálii, Istrie*
+			 - Velká Británie - *zámořské kolonie*
+			 - Rýnský spolek
+			 	- svazek německých států
+			 	- v čele spolkový sněm
+			 	- převaha Habsburské monarchie
+	- **princip "status QUO" = zajištění stávajícího stavu**
+		- **vznik Svaté aliance** - model evropské kolektivní společnosti
+			- měla zavedené vlastní vnitřní clo
+			- signatáři - Prusko, Rakousko, Rusko
+			- základ *"křesťanské solidarity"*
+- dědictví Velké francouzské revoluce -> protichůdné
+- politická tendence (liberalismus X konzervatismus)

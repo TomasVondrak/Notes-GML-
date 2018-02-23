@@ -1,0 +1,99 @@
+#Umělecké směry 19. století
+- stol. 18. a 1/2 19. stol.
+- doznívá Baroko
+---
+##Rokoko
+- počátek v 18. stol. - Francie
+- architektonický a životní styl vyšších vrstev
+- název z rocaille (mušlička)
+- **znaky**
+	- zdobnost
+	- drobné tvary, mušličkovité ornamenty (oproti baroku - baroko je monumentální)
+	- snaha o hravost, galantnost
+- **architektura**
+	- klade důraz na interiér
+	- pastelové barvy
+	- zrcadla, bílý a zlatý nábytek
+---
+##Klasicismus
+- 18./19. stol.
+- vynikající
+- Francie
+- znaky
+	- orientuje se na antické umění
+	- ovlivněn osvícenským rozumem
+	- důraz na harmonii, střízlivost
+	- bílá a zlatá
+- **architektura**
+	- účelové, praktické stavby
+	- souvisí s urbanizací 19. stol.
+	- nádraží, muzea, divadla, budovy vlády - parlamenty,.., nábřeží, parky, kolonády, činžáky, továrny
+	- např.: Pařížský panteon, Versailles, Louver, Britské muzeum, Braniborská brána, Německo, Americký Kapitol, Stavovské divadlo v Praze, lázeňské budovy - Mariánské lázně, Františkovy lázně
+- **zahradní architektura**
+	- Francouzský park
+		- symetrie, geometrie
+		- nepřeplácanost
+	- Anglický park
+		- volná příroda
+		- nepravidelnost
+		- zákoutí
+		- přirozenost
+- **Výtvarné umění**
+	- **sochařství**
+		- busty slavných osobností
+		- obelisky vítězství
+	- **malířství**
+		- portréty známých osobností
+		- odvaha a ctnost ()
+- **Hudba**
+	- harmonie, důraz na melodii
+	- symfonie, sonáty
+	- Wolfgang Amadeus Mozart
+	- Haydn
+	- Ludwig Von Bethowen
+---
+##Empír
+- 18./19. stol.
+- Napoleón
+- souvisí s Impériem (vojenským) Napoleóna
+- závěr Klasicismu
+- **architektura**
+	- monumentální stavby
+	- vítězné oblouky
+	- symetrie
+	- harmonie
+	- zámek Kačina, dům U Hybernů
+---
+##Romantismus
+- 1/2 19. stol.
+- cit, obraznost, svoboda jedince
+- reakce na rozum osvícenství -> **iracionálnost** (citové, vášnivé, šílenství atp.)
+- krajní emocionální
+- inspirace v mýtech, legendách, přírodě
+- přitahuje život lidí svobodných, nespoutaných (loupežníci, poutníci, divoši)
+- **literatura**
+    - Percy Bysh Shelly, Lord Gordon Byron (Anglie)
+    - Victor Hugo, Stendhau (Francie)
+    - Puškin, Lermontov (Rusko)
+    - Novalis, Heine (Lorelai), Bratři Grimové (Německo)
+- **malířství**
+	- příroda
+	- Delacroix (Francie - Vítězství na barikádách)
+	- F. Goya (Španělsko)
+- **hudba**
+	- opera
+		- dají se zde zachytit dramatické situace
+	- G. Verdi (Itállie)
+	- G. Rossini (Itálie)
+	- F. Chopin (Polsko)
+---
+##Biedermeier
+- 1/2 19. století
+- měšťanský směr střední Evropy
+- konzervativní
+- kariérní emancipace
+- původně posměšný název (měšťák)
+- klidné rodinné zázemí, nezkažená příroda, práce pro vlast (aktivita v práci)
+- mravný a prací naplněný život (oproti rozevláté šlechtě)
+- měšťanské salóny
+- vybavení interiérů, kultura stolování

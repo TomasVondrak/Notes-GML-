@@ -1,0 +1,135 @@
+#Habsburská monarchie v době Metternichovského absolutismu
+- uč. s. 75--78
+
+##Habsburská monarchie po vídeňském kongresu
+- mocensky posílena
+- **územní rozsah**
+	- jádro: **Rakouské země** (Alpské země), **České země**, **Uhry** (i jihovýchodní Evropa - Sedmihradsko, Banát), **Chorvatsko**, Salvonie
+	- díky dělení Polska nadvláda nad **Haličí a Bukovinou (jižní oblast Rumunska)**
+	- po skončení Napoleónských válek bylo připojeno **Benátsko a Lombardie**
+	- mnohonárodnostní říše (mapa uč. 77)
+	- opora **Svaté aliance**
+		- vzniká na Vídeňském kongresu
+		- státy, které by si navzájem pomohli v případě občanské revoluce -- **bezpečnostní blok**
+		- zakladatel: Alexandr I., Metternich
+		- signatáři: Prusko, Anglie
+---
+##Politický systém (absolutistická monarchie)
+- konzervativní, absolutstický, reakční
+- tajná policie -- zabraňuje svobodomyslnosti
+- **Františko-Metternichovský systém**
+	- nejzaostalejší ve střední Evropě
+	- projevy konzervatismu a zpátečnictví režimu:
+		- **moc má císař**
+			- opírá se o kancléře Metternicha
+			- pomáhají císařští úředníci
+			- opory:
+				- tajná policie (strach, udávání)
+				- cenzura, omezená spolková činnost,...
+				- byrokratický aparát
+		- **školství:**
+			- nesmí se studovat jinde než v Habsburské monarchii (zabránění pokroku)
+			- univerzity - ostrý státní dohled
+			- "Držte se starého, neboť to je dobré." -= František I.
+	- omezení svobody názorů => utlumení politického a společenského života
+	- zmírněna centralizace a germanizace
+	- v roce 1814 nový **občanský zákoník**
+		- nového pouze rovnost před zákonem
+		- jinak prosazuje základy feudální společnosti
+		- robota stále existuje, možna nahradit finanční náhradou
+- po zkušenostech s Francií z Napoleónských válek => pakty s Pruskem
+---
+##Zahraniční politika
+- orientace na Prusko
+
+##Situace za vlády císaře Ferdinanda I.
+- bez zlepšení
+- poslední korunovaný český král -- Ferdinand V. (později už nebyli korunováni českými králi)
+- duševní zaostalost, laskavý, neschopný dobře vládnout
+- Dobrotivý, Ferdásek
+- ve skutečnosti vládne **kancléř Metternich** s **poradním orgánem**
+- revoluční vlna 1848 --> svržení Františka I.
+---
+##Probuzení národního vědomí, národní obrození
+- přispívají Napoleónské války (utlačování národů)
+- - -
+#České země v době Národního obrození
+- uč. s. 78--79
+- propagátorem byli Maďaři (první se obrodili)
+---
+##České národní obrození
+- proces utváření novodobé české národní společnosti a kultury
+- poslední čtvrtina 18. stol. do 19. stol
+- 4 etapy
+- **změny:**
+	- kulturní -- Český jazyk a písemnictví
+	- společenské
+	- sociální
+	- hospodářské
+	- politické
+- **posílení národního sebevědomí**
+	- vliv slovanské vzájemnosti
+	- rukopisy Královehradecký a Zelenohorský (Linda a Hanka)
+- **2 generace obrozenců**
+	- **prosadili:**
+		- **modernizace jazyka**
+			- **J. DOBROVSKÝ** -- Zevrubná mluvnice jazyka Českého
+			- **J. JUNGMAN** -- pěti dílný slovník
+			- **bratři PRESLOVÉ** -- odborná terminologie
+			- povznesení **českého písemnictví** na evropskou úroveň
+				- **K. H. MÁCHA** -- Máj
+				- **F. L. ČELAKOVSKÝ** -- Ohlasy písní Ruských a Českých
+					- napodobování lidové slovesnosti
+				- **J. K. TYL**
+				- **K. J. ERBEN**
+		- roste zájem o **českou historii**
+			- **F. PALACKÝ** - Dějiny národa českého v Čechách a na Moravě
+			- **P. J. ŠAFAŘÍK**
+		- **zakládání muzeí**
+			- nejstarší v roku 1814 v Opavě
+			- poté Brněnské
+			- třetí v Praze
+		- **divadla**
+			- divadlo v Kotcích --> tržní boudy
+			- divadlo Bouda --> první opravdové české divadlo
+		- **učené společnosti**
+			- měšťanská beseda
+				- spolková činnost
+				- kulturně-společensko vzdělávací středisko, provádění osvěty
+				- F. L. RIEGER
+		- **žurnalistika**
+			- zakladatel politické publicistiky v Česku -- **K. H. BOROVSKÝ**
+---
+##počátky průmyslové revoluce
+- strojová výroba
+- textilní, hutní, strojní
+- 1. parní stroje vyrobeny v Brně a v Liberci, poté i Praha
+- koncem 40. let přes sto parních strojů v Česku
+- 1. konězpřežná železnice (Budějovice -- Linec)
+- 1. parostrojní železnice (Brno -- Vídeň přes Olomouc)
+---
+##Sociální struktura předbřeznové společnosti
+- **šlechta** -- poze 1 % obyvatelstva (privilegia, přístup ke dvoru, vlastníci velkých pozemkových vlastnictví, politická práva -- zasedá v zemském sněmu, působí v diplomacii, úřadech a v armádě)
+	- většinou německého původu - Schwarcenbergové, Lichtensteinové
+- **měststská honorace**
+	- určité společenské výsady
+	- v místní samospráva
+	- výrazná germanizace
+- **měšťanstvo**
+	- vlastníci nemovitostí
+	- řemeslníci, živnostníci, podnikatelé, obchodníci
+- **chudina**
+	- v nájemních domech
+	- levná pracovní síla
+- **venkovské obyvatelstvo**
+	- nejmajetnější sedláci
+		- najímají pracovní sílu
+		- hospodaří
+	- chalupníci
+		- drobný zemědělec
+		- menší pole a chalupa
+	- domkář (baráčníci)
+		- dům bez pole, malá zahrádka
+	- bezzemci (vidláci)
+		- pracovní síla
+- **Buržoazie a kapitalisté**
